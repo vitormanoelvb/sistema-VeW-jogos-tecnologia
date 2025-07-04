@@ -106,4 +106,10 @@ Observações
 
 –––––––––––––––––––––––––––––––––––––––––––––––––––––––––––––––––––––––––––
 
-Bom trabalho!
+UNIVERSIDE VALE DO RIO DOCE (UNIVALE)
+
+–––––––––––––––––––––––––––––––––––––––––––––––––––––––––––––––––––––––––––
+
+ADIMINISTRAÇÃO DE SEGURANÇA DE BANCO DE DADOS 
+PROF: HENRIQUE BIANOR FREITAS SILVA
+ALUNOS: VITOR MANOEL VIDAL BRAZ e WAUCLIDSON ALVES DIAS
